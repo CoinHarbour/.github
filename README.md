@@ -1,4 +1,4 @@
-Coin Harbour Social Media Links
+Coin Harbour Pty Ltd Social Media Links for the CoinHarbour digital asset exchange.
 
 Website:
 https://www.coinharbour.com.au
